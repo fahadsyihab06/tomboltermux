@@ -42,3 +42,5 @@ Tutorialnya di yt klik link di bawah
 # info script 
 SCRIPT 100% AMAN DAN WORK 
 - hasil
+
+<a href="https://ibb.co/FJ2dKZ5"><img src="https://i.ibb.co/wCV2RGS/Screenshot-2023-11-17-13-52-27-90.png" alt="Screenshot-2023-11-17-13-52-27-90" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>foto co</a><br />
