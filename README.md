@@ -25,7 +25,7 @@ selesai_<
 # tutorial 
 
 Tutorialnya di yt klik link di bawah
-
+https://youtu.be/Sy6WRB6922A?si=e3oSBTZVecabJYDP
 
 # Warnning
                  Perhatian
